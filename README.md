@@ -1,2 +1,1 @@
-# proje1
-proje
+IMG_20250811_213656.jpg
